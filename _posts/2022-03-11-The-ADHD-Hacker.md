@@ -1,5 +1,5 @@
 ---
-title:The ADHD Hacker
+title: The ADHD Hacker
 published: true
 ---
 
