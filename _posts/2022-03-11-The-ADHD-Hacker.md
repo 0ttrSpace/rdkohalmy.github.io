@@ -15,4 +15,4 @@ I am not going to run around my house or office screaming and freaking out like 
 
 I have built habits and tools to keep that from happening frequently and ways to break out of the tunnel. That doesn't mean I am perfect and that I wont rabbit hole from time to time but it's rare and generally doesn't last long before I realize I am off track. 
 
-Thanks for reading, future posts will not be exactly like this. Some ADHD sure but mostly my projects, concepts, CTFs, etc.. Now, if you will excuse me I have already skipped to eat lunch and I forgot to make dinner. 
+Thanks for reading, future posts will not be exactly like this. Some ADHD sure but mostly my projects, concepts, CTFs, etc.. Now, if you will excuse me I have already skipped lunch and I forgot to make dinner. 
